@@ -1,5 +1,7 @@
 hibhie hi he hello hii
 
+<img width="423" height="293" alt="Image" src="https://github.com/user-attachments/assets/a5f0e9f4-2267-4b16-a6d1-54b0c506ea93" />
+
 [instagram](https://www.instagram.com/encanddica?igsh=Z3NzcHpiY25tam1n)
 [atabook](https://joojayjeoojoju.atabook.org/)
 
