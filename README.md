@@ -8,3 +8,4 @@ hibhie hi he hello hii
 [discord](https://discordapp.com/users/1340894027389603850/)
 [strawpage](https://joojayjoujuj.straw.page)
 [pronouns](https://en.pronouns.page/@enkandikka)
+[rentry GIFTED BY GIGI](https://rentry.co/EddieHellfire)
