@@ -1,8 +1,6 @@
 ,, cowboys are secretly, frequently, fond of each other ࿔˖  ࣪  
  
      𐀪𐀪
-
-   he/him 
    
 sign my ata and check out my strawpage!
 
