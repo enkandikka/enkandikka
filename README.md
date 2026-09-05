@@ -1,3 +1,12 @@
+troubled cowboy
+ 
+     𐀪𐀪
+
+   he/him 
+   
+˖౨ aign my ata and check out my strawpage!
+c+h is always welcome, don't be afraid to interact ࿔˖  ࣪  
+
 dark/pro/comshippers dni
 
 I do not tolerate sharing harmful coping mechanisms, topics of or jokes about in public. this can harm other people in a similar situation! if you believe you or someone you know is struggling, please reach out to someone.
