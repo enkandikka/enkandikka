@@ -14,5 +14,6 @@ c+h is always welcome, don't be afraid to interact
 
 [guns.lol](https://guns.lol/gemgd)
 
-  ,  dark/pro/comshippers dni
+ dark/pro/comshippers dni
+ 
 i block freely
