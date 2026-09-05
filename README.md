@@ -1,4 +1,4 @@
-troubled cowboy ࿔˖  ࣪  
+,, cowboys are secretly, frequently, fond of each other ࿔˖  ࣪  
  
      𐀪𐀪
 
@@ -14,4 +14,4 @@ c+h is always welcome, don't be afraid to interact
 
 [guns.lol](https://guns.lol/gemgd)
 
- dark/pro/comshippers do not interact, if you have to, block me 
+ dark/pro/comshippers do not interact
