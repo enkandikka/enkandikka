@@ -14,6 +14,5 @@ c+h is always welcome, don't be afraid to interact
 
 [guns.lol](https://guns.lol/gemgd)
 
-  dark/pro/comshippers dni
-
- I do not support sharing harmful coping mechanisms, topics of or jokes about in public. this can harm other people in a similar situation! 
+  ,  dark/pro/comshippers dni
+i block freely
