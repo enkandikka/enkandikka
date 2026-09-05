@@ -4,7 +4,7 @@
 
    he/him 
    
-˖ sign my ata and check out my strawpage!
+sign my ata and check out my strawpage!
 
 c+h is always welcome!
 
