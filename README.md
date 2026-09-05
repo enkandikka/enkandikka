@@ -5,7 +5,8 @@
    he/him 
    
 ˖ sign my ata and check out my strawpage!
-c+h is always welcome, don't be afraid to interact with me!
+
+c+h is always welcome!
 
 usually offtab : w2i
 
