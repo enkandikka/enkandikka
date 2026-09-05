@@ -1,11 +1,11 @@
-troubled cowboy
+troubled cowboy ࿔˖  ࣪  
  
      𐀪𐀪
 
    he/him 
    
 ˖ sign my ata and check out my strawpage!
-c+h is always welcome, don't be afraid to interact ࿔˖  ࣪  
+c+h is always welcome, don't be afraid to interact 
 
 
 <img width="500" height="225" alt="Image" src="https://github.com/user-attachments/assets/d4e5c34f-77af-45f0-b5aa-d631cdd52ccc" />
