@@ -14,14 +14,6 @@ c+h is always welcome, don't be afraid to interact
 
 [guns.lol](https://guns.lol/gemgd)
 
-dark/pro/comshippers dni
+  dark/pro/comshippers dni
 
-I do not tolerate sharing harmful coping mechanisms, topics of or jokes about in public. this can harm other people in a similar situation! 
-
-if you believe you or someone you know is struggling, please reach out to someone.
-
-TEXT/CALL 211
-
-TEXT/CALL 988
-
-SAMHSA's National Helpline: 1-800-662-4357
+ I do not support sharing harmful coping mechanisms, topics of or jokes about in public. this can harm other people in a similar situation! 
