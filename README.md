@@ -3,7 +3,8 @@
      𐀪𐀪
    
 sign my ata and check out my strawpage!
-@kandivich check out alt too
+
+alt: [@kandivich](https://github.com/kandivich)
 
 c+h is always welcome!
 
