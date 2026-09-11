@@ -1,8 +1,9 @@
 ,, cowboys are secretly, frequently, fond of each other ࿔˖  ࣪  
  
-     𐀪𐀪 @kandivich
+     𐀪𐀪
    
 sign my ata and check out my strawpage!
+@kandivich check out alt too
 
 c+h is always welcome!
 
