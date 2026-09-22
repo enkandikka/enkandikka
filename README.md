@@ -1,20 +1,7 @@
-,, cowboys are secretly, frequently, fond of each other ࿔˖  ࣪  
- 
+
+ <img width="1080" height="398" alt="Image" src="https://github.com/user-attachments/assets/04ae90fb-b760-49ab-a027-dbee4a0e18bd" />
+
      𐀪𐀪
-   
-sign my ata and check out my strawpage!
+   [ata]() [rentrywip]()
 
-alt: [@kandivich](https://github.com/kandivich)
-
-c+h is always welcome!
-
-usually offtab : w2i
-
-
-<img width="500" height="225" alt="Image" src="https://github.com/user-attachments/assets/d4e5c34f-77af-45f0-b5aa-d631cdd52ccc" />
-
-[walk-of-fame](https://github.com/pt-walk-of-fame) [pronouns.cc](https://en.pronouns.page/@enkandikka)
-
-[guns.lol](https://guns.lol/gemgd)
-
- dark/pro/comshippers do not interact
+<img width="1080" height="353" alt="Image" src="https://github.com/user-attachments/assets/ae94d736-4bf7-48d5-9d88-88a1e0649310" />
