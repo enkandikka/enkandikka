@@ -6,3 +6,4 @@
 
 
 <img width="1080" height="353" alt="Image" src="https://github.com/user-attachments/assets/ae94d736-4bf7-48d5-9d88-88a1e0649310" />
+[![Typing SVG]https://readme-typing-svg.demolab.com/?lines=I+wish+of+i+knew+how+to+quit+you)](https://git.io/typing-svg)
