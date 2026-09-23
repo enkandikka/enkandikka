@@ -1,3 +1,4 @@
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=728684&width=435&lines=I+wish+I+knew+how+to+quit+you)](https://git.io/typing-svg)
 
  <img width="1080" height="398" alt="Image" src="https://github.com/user-attachments/assets/04ae90fb-b760-49ab-a027-dbee4a0e18bd" />
  
@@ -7,3 +8,5 @@
 
 <img width="1080" height="353" alt="Image" src="https://github.com/user-attachments/assets/ae94d736-4bf7-48d5-9d88-88a1e0649310" />
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=C8946C&width=435&lines=I+wish+I+knew+how+to+quit+you" alt="Typing SVG" /></a>
+
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=E1A87B&width=435&lines=so+why+don't+you%3F)](https://git.io/typing-svg)
