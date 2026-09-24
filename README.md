@@ -4,7 +4,7 @@
 
      𐀪𐀪  
 
-[rentry](https://rentry.co/mountainromance)
+[RENTRY](https://rentry.co/mountainromance)
 
 <img width="1080" height="353" alt="Image" src="https://github.com/user-attachments/assets/ae94d736-4bf7-48d5-9d88-88a1e0649310" />
 
