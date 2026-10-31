@@ -1,11 +1,15 @@
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=728684&width=435&lines=sometimes+i+miss+you+so+much+)](https://git.io/typing-svg)
- <img width="1080" height="398" alt="Image" src="https://github.com/user-attachments/assets/04ae90fb-b760-49ab-a027-dbee4a0e18bd" />
+ <img width="664" height="201" alt="Image" src="https://github.com/user-attachments/assets/22ddd381-8335-434b-ab2f-55101759f71f" />
+ 
 [ATABOOK](https://kandi.atabook.org/)
 
-     𐀪𐀪  
+
+<img width="664" height="573" alt="Image" src="https://github.com/user-attachments/assets/75d5e93c-7208-4568-afd2-aede7f8ee9ae" />
 
 [RENTRY](https://rentry.co/mountainromance)
 
-<img width="1080" height="353" alt="Image" src="https://github.com/user-attachments/assets/ae94d736-4bf7-48d5-9d88-88a1e0649310" />
+
+<img width="664" height="226" alt="Image" src="https://github.com/user-attachments/assets/41b58e08-dfad-4b9c-be5e-c8688cd73bfd" />
+
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=E1A87B&width=435&lines=i+can+hardly+stand+it+)](https://git.io/typing-svg)
