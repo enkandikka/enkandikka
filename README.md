@@ -4,7 +4,7 @@
 [ATABOOK](https://kandi.atabook.org/)
 
 
-<img width="664" height="573" alt="Image" src="https://github.com/user-attachments/assets/75d5e93c-7208-4568-afd2-aede7f8ee9ae" />
+<img width="448" height="386" alt="Image" src="https://github.com/user-attachments/assets/62ea71d9-3a12-4145-9ef2-a13320de3e16" />
 
 [RENTRY](https://rentry.co/mountainromance)
 
